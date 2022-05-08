@@ -6,8 +6,7 @@ however I am currently looking to continue these efforts within the United State
 for innovation and I keep trying to answer. However, so far all attempts have gone unanswered.
 
 I continue these efforts with a deep seated passion to make sure we leave a better environment behind for our 
-future Airmen. I truely believe our training and readiness is what continues to give us our edge. If given the
+future Airmen. I truly believe our training and readiness is what continues to give us our edge. If given the
 chance I will do just that.
-
 
 If you wish to contact me reach out to Infinity Spark Joint Base McGuire for my contact information.
